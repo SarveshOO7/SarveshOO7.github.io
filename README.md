@@ -6,8 +6,8 @@
 
 - 👯 I’m looking to collaborate with other developers.
 - 🥅 `2020 Goals :` Contribute more to Open Source and connect with others.
-- ⚡ `Fun fact :` I love Panipuri 🤣.
-- 🌱 `Interest :` Any iC that I haven't seen before, Coding, Squash, Chess, Science fiction, Anime.
+- ⚡ `Fun fact :` I love LoFi 🎶.
+- 🌱 `Interest :` Any IC that I haven't seen before, Coding, Squash, Chess, Science fiction
 
 
 ### Connect with me :
